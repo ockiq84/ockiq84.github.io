@@ -1,1 +1,0 @@
-# ockiq84.github.io
